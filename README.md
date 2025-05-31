@@ -1,4 +1,4 @@
-## Non kinning IRLs DNI || Objectum DNI ||
+## Non kinning IRLs DNI || Objectum DNI || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU || Silvaze DNI
 <!--
 **z0mbcat/z0mbcat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
