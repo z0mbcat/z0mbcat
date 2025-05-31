@@ -1,5 +1,4 @@
-## Hi there 👋
-
+## Non kinning IRLs DNI || Objectum DNI || If you ship Fleetway with characters DNI (HOLY MISCHARACTERIZARION), He's basically the embodiment of sonics hate.
 <!--
 **z0mbcat/z0mbcat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
