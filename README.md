@@ -1,4 +1,4 @@
- Non kinning IRLs DNI || Objectum DNI || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU 
+ Non kinning IRLs DNI || Objectum DNI || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU || fans of that gooner "curse" exe dni that shits ugly 💔
 
  If I unfriend you its nothing personal (usually), I probably just forgot who you were or we don't talk 
 <!--
