@@ -2,6 +2,8 @@
 
  usually offtab so W2I or something
 
+ I like making friends most of the time so don't be afraid to talk to me
+
  If I unfriend you its nothing personal (usually), I probably just forgot who you were or we don't talk 
 <!--
 **z0mbcat/z0mbcat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
