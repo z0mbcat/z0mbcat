@@ -2,7 +2,7 @@
 
  usually offtab so W2I or something
 
- IF YOU LIKE/PLAY THE RESIDENT EVIL GAMES PLEASE CONSIDER TALKING TO ME
+ **IF YOU LIKE/PLAY THE RESIDENT EVIL GAMES PLEASEEE CONSIDER TALKING TO ME**
 
  If I unfriend you its nothing personal (usually), I probably just forgot who you were or we don't talk 
 <!--
