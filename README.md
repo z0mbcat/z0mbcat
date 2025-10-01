@@ -2,7 +2,7 @@
 
  usually offtab so W2I or something
 
- I like making friends most of the time so don't be afraid to talk to me
+ IF YOU LIKE/PLAY THE RESIDENT EVIL GAMES PLEASE CONSIDER TALKING TO ME
 
  If I unfriend you its nothing personal (usually), I probably just forgot who you were or we don't talk 
 <!--
