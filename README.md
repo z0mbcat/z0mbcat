@@ -1,4 +1,6 @@
- **Don't be afraid to talk to me, I love making friends!**
+ **Don't be afraid to talk to me, I love making friends**
+
+ I'm a furry ahhh!!!! (my fursona is a cat 🤫🤫)
  
  Non kinning IRLs DNI || Objectum DNI || Sark / Curse exe fans dni || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU ||
 
