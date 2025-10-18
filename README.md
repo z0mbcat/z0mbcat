@@ -1,6 +1,6 @@
  **Don't be afraid to talk to me, I love making friends**
 
- I'm a furry ( fursona is my pfp, art by robifart :3 )
+ I'm a furry ( fursona is my pfp, art by robifart )
 
 I really like Sonic, Danganronpa, and homestuck rn but I like a lot of other stuff
  
