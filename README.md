@@ -2,7 +2,7 @@
 
  I'm a furry ( fursona is my pfp, art by robifart :3 )
 
-I really like Sonic and Danganronpa rn but I like a lot of other stuff
+I really like Sonic, Danganronpa, and homestuck rn but I like a lot of other stuff
  
  Non kinning IRLs DNI || Objectum DNI || Sark / Curse exe fans dni || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU ||
 
