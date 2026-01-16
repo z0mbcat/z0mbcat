@@ -2,11 +2,9 @@
 
  I'm a furry ( fursona is my pfp, art by robifart )
 
-I really like Sonic, Danganronpa, and homestuck rn but I like a lot of other stuff
+I really like Homestuck, fallout, and Dialtown rn but I like a lot of other stuff
  
  Non kinning IRLs DNI || Objectum DNI || Sark / Curse exe fans dni || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU ||
-
- usually offtab so W2I or something
 
  If I unfriend you its nothing personal (usually), I probably just forgot who you were or we don't talk 
 <!--
