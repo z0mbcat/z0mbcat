@@ -1,10 +1,6 @@
- **Don't be afraid to talk to me, I love making friends**
-
- I'm a furry ( fursona is my pfp, art by robifart )
-
-I really like Homestuck, fallout, and Dialtown rn but I like a lot of other stuff
+I really like Homestuck
  
- Non kinning IRLs DNI || Objectum DNI || Sark / Curse exe fans dni || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU ||
+ Non kinning IRLs DNI || Pro para dni || Sark / Curse exe fans dni || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU ||
 
  If I unfriend you its nothing personal (usually), I probably just forgot who you were or we don't talk 
 <!--
