@@ -1,4 +1,4 @@
-I really like Homestuck
+I like things
  
  Non kinning IRLs DNI || Pro para dni || Sark / Curse exe fans dni || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU ||
 
