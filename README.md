@@ -3,6 +3,8 @@ I like things
  Non kinning IRLs DNI || Pro para dni || Sark / Curse exe fans dni || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU ||
 
  If I unfriend you its nothing personal (usually), I probably just forgot who you were or we don't talk 
+
+ i hide people often so don't ask me why i "blocked your friend", there is always a reason lmao
 <!--
 **z0mbcat/z0mbcat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
