@@ -5,6 +5,8 @@ I like things
  If I unfriend you its nothing personal (usually), I probably just forgot who you were or we don't talk 
 
  i hide people often so don't ask me why i "blocked your friend", there is always a reason lmao
+
+  💗💗 B, B, C, C, C, D, F, M, J, K, P, P, R, V, Y 💗💗
 <!--
 **z0mbcat/z0mbcat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
