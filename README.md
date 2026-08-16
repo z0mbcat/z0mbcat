@@ -1,4 +1,4 @@
-I like things
+I like overwatch and marvel rivals
  
  Non kinning IRLs DNI || Pro para dni || Sark / Curse exe fans dni || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU ||
 
