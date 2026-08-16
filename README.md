@@ -1,6 +1,6 @@
 I like overwatch and marvel rivals
  
- Non kinning IRLs DNI || Pro para dni || Sark / Curse exe fans dni || MEPHILVER ACTUALLY DNI I HATE ALL OF YOU ||
+ I block freely
 
  If I unfriend you its nothing personal (usually), I probably just forgot who you were or we don't talk 
 
