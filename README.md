@@ -6,7 +6,7 @@ I like overwatch and marvel rivals
 
  i hide people often so don't ask me why i "blocked your friend", there is always a reason lmao
 
-  💗💗 B, B, C, C, C, D, F, J, L, M, K, P, P, R, V, Y 💗💗
+  💗💗 B, B, C, C, C, D, F, J, K, L, M, P, P, R, V, Y 💗💗
 <!--
 **z0mbcat/z0mbcat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
